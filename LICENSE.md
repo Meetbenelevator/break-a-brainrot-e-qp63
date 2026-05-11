@@ -1,4 +1,4 @@
-#  
+#  Experience baddies like never before with baddies Script instant, the #1 Script. Includes no cooldown and teleport for unbeatable performance.
 
 
 
